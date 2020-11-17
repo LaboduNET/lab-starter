@@ -1,1 +1,2 @@
-greaaaaaaat job! greaaaaaaat job!greaaaaaaat job!greaaaaaaat job!greaaaaaaat job!greaaaaaaat job!
+ah ca va! greaaaaaaat job! greaaaaaaat job!greaaaaaaat job!greaaaaaaat job!greaaaaaaat job!greaaaaaaat job!
+mesures devront permettre d’amorcer une trajectoire de transformation pour décarboner nos activités au bon rythme, et rendre la société résiliente aux chocs. Construire, secteur par secteur, ces propositions, par une mobilisation des acteurs concernés : cela sera l’objet de la prochaine phase du projet PTEF, q
